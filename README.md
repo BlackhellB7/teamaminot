@@ -1,0 +1,2 @@
+# teamaminot
+GitHub Pages
